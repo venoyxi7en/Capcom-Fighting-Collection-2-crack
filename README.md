@@ -1,0 +1,1 @@
+# Capcom-Fighting-Collection-2-crack
